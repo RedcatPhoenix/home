@@ -8,6 +8,16 @@ You can help me get followers on Twitch by going to my twitch page! [Twitch](htt
 
 [Gamer Discord Bot](https://gamingbotdiscord.github.io/)
 
+### IDs in Games and more
+
+Roblox  user: NotPhoenixnyanYT
+Epic ID: RedPCatYT
+Discord User and Tag: PhoenixCatzYT#6145
+Xbox Gamertag: GamingPnyanYT
+Nintendo Network ID: MattyWestSiide (<- came with wii u) and Kanix1985 (<- mine)
+
+### Discord Server
+
 
 # Use code: RedPCat in Phoenix's Adventure Online!
 ## Email awesomepcat@gmail.com for anything new!
