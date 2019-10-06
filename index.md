@@ -20,6 +20,10 @@ You can help me get followers on Twitch by going to my twitch page! [Twitch](htt
 
 [RedPCat Discord](https://discord.gg/GuQkvx7)
 
+# Pages
+
+Home [About](https://redphoenixcat.github.io/about)
+
 # Use code: RedPCat in Phoenix's Adventure Online!
 ## Email awesomepcat@gmail.com for anything new!
 ### ©Phoenix The Red cat 2018-2019
