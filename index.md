@@ -4,10 +4,6 @@ You can sub to phoenix on [Youtube](https://www.youtube.com/channel/UCwX_X8hHkbx
 
 You can help me get followers on Twitch by going to my twitch page! [Twitch](https://www.twitch.tv/realawesomepcat) to support me!
 
-# Sites
-
-[Gamer Discord Bot](https://gamingbotdiscord.github.io/)
-
 # IDs in Games and more
 
 ### Roblox  user: NotPhoenixnyanYT
@@ -22,7 +18,7 @@ You can help me get followers on Twitch by going to my twitch page! [Twitch](htt
 
 # Pages
 
-Home [About](https://redphoenixcat.github.io/about)
+Home [About](https://redcatphoenix.github.io/about)
 
 # Use code: RedPCat in Phoenix's Adventure Online!
 ## Email awesomepcat@gmail.com for anything new!
