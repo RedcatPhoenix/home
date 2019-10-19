@@ -18,7 +18,7 @@ You can help me get followers on Twitch by going to my twitch page! [Twitch](htt
 
 # Pages
 
-Home [About](https://redcatphoenix.github.io/about)
+Home [Sites](https://redcatphoenix.github.io/404) [About](https://redcatphoenix.github.io/about)
 
 # Use code: RedPCat in Phoenix's Adventure Online!
 ## Email awesomepcat@gmail.com for anything new!
